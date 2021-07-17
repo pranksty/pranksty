@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @pranksty
-- 👀 I'm see u
-- 🌱 x.x
-- 💞️ I’m looking to collaborate on schedule / ~ patience ~ \
-- 📫 How to reach me ... wait... wait... wait... -*- 
+- 👋 Hey, guys.. , I’m @pranksty ,
+<s.l f=#pb; grut="top-BAR";/>👀 I'm see u
